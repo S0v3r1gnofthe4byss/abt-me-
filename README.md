@@ -7,4 +7,8 @@ CRK kins are : Black pearl, White pearl, Black Sapphire, Sea fairy and Dark fore
 
 BSC x BPC is my comfort ship, blackbell shippers are on thin ice since yall are super weird most time i int with you !!..
 
-other info will be on my strawpage woah !! check that out, or my main acc !!
+other info will be on my strawpage woah !! check that out, or my main acc !!!
+
+![image](https://github.com/user-attachments/assets/56c213ca-6a92-4037-94d7-178c614e5c6f)
+
+
